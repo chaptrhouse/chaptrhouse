@@ -1,4 +1,4 @@
-### Top Tracks - Overall
+![Logo](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c4/Lastfm.svg/1200px-Lastfm.svg.png) Top Tracks - Overall
 
 >
 > `617` ▶️ • **[All I Need](https://www.last.fm/music/Etro+Anime/_/All+I+Need)**  
