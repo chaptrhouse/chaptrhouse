@@ -1,16 +1,19 @@
-### Hi there 👋
+> `617 ▶️` • **[All I Need](https://www.last.fm/music/Etro+Anime/_/All+I+Need)**
 
-<!--
-**chaptrhouse/chaptrhouse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> `615 ▶️` • **[Diablo](https://www.last.fm/music/Etro+Anime/_/Diablo)**
 
-Here are some ideas to get you started:
+> `615 ▶️` • **[Summer Rain](https://www.last.fm/music/Etro+Anime/_/Summer+Rain)**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> `612 ▶️` • **[Endless](https://www.last.fm/music/Etro+Anime/_/Endless)**
+
+> `609 ▶️` • **[Danger](https://www.last.fm/music/Etro+Anime/_/Danger)**
+
+> `609 ▶️` • **[Portrait](https://www.last.fm/music/Etro+Anime/_/Portrait)**
+
+> `606 ▶️` • **[Forgotten Love](https://www.last.fm/music/Etro+Anime/_/Forgotten+Love)**
+
+> `605 ▶️` • **[Either Way](https://www.last.fm/music/Etro+Anime/_/Either+Way)**
+
+> `604 ▶️` • **[Adonis](https://www.last.fm/music/Etro+Anime/_/Adonis)**
+
+> `604 ▶️` • **[Purest One](https://www.last.fm/music/Etro+Anime/_/Purest+One)**
