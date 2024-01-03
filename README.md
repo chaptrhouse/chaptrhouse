@@ -7,5 +7,5 @@
 > `609` ▶️ • **[Portrait](https://www.last.fm/music/Etro+Anime/_/Portrait)**  
 > `606` ▶️ • **[Either Way](https://www.last.fm/music/Etro+Anime/_/Either+Way)**  
 > `606` ▶️ • **[Forgotten Love](https://www.last.fm/music/Etro+Anime/_/Forgotten+Love)**  
+> `605` ▶️ • **[Purest One](https://www.last.fm/music/Etro+Anime/_/Purest+One)**  
 > `604` ▶️ • **[Adonis](https://www.last.fm/music/Etro+Anime/_/Adonis)**  
-> `604` ▶️ • **[Purest One](https://www.last.fm/music/Etro+Anime/_/Purest+One)**  
