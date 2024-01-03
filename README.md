@@ -1,4 +1,4 @@
-### :musical_note: Top Tracks - :trophy: Overall
+### :musical_note: Top Tracks - Overall
 
 >
 > `617` :notes: • **[All I Need](https://www.last.fm/music/Etro+Anime/_/All+I+Need)**  
